@@ -2,7 +2,15 @@
 
 This is just my ongoing list of shows I've seen and shows I'm going to see.
 
+## Upcoming
 
+August 2nd, 2025 - Greensky Bluegrass @ Pier 62
+
+August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
+
+September 3rd, 2025 - Calva Louise, Mike's Dead, & Sick Sense
+
+## Seen Em'
 
 March 11th, 2025 - Edge of Paradise, Xandria, Delain - (tix on seetickets) - El Corazon
 
@@ -21,3 +29,5 @@ May 10th, 2025 - Nekrogoblikon, Revocation, Ov Sulfur, Brat -  - El Corazon
 May 22nd, 2025 - Rolling Quartz - ticketweb - El Corazon
 
 July 15th, 2025 - Babymetal, Jinjer, Bloodywood - ticketmaster - Showare
+
+July 12th, 2025 - Skating Polly, Illuminati Hotties @ Ballard Seafood Festival
