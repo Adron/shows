@@ -10,8 +10,6 @@ August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
 
 September 3rd, 2025 - Calva Louise, Mike's Dead, & Sick Sense @ ?? in San Francisco, CA
 
-- Novelists @ 
-
 ## Determine Which One Cuz Logistics r' Awesome
 
 September 10/11th, 2025 - John Baptiste @ Ste Michelle
