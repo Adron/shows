@@ -8,15 +8,11 @@ August 2nd, 2025 - Greensky Bluegrass @ Pier 62
 
 August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
 
-September 3rd, 2025 - Calva Louise, Mike's Dead, & Sick Sense @ ?? in San Francisco, CA
+September 3rd, 2025 - Calva Louise & Sick Sense @ ?? in San Francisco, CA
 
 ## Determine Which One Cuz Logistics r' Awesome
 
-September 10/11th, 2025 - John Baptiste @ Ste Michelle
-
-September 16th, 2025 - John Baptiste @ The Cuthbert in Eugene, OR
-
-September 30th, 2025 - Novelists @ 7:30 @ Sunset Tavern in Ballard (wrote Ballard, obviously Seattle but don't want to forget to go to "Ballard" cuz not in downtown).
+October ??, 2025 - Avatar @ Moore Theater in Seattle.
 
 ## Seen Em'
 
