@@ -4,8 +4,6 @@ This is just my ongoing list of shows I've seen and shows I'm going to see.
 
 ## Upcoming
 
-August 2nd, 2025 - Greensky Bluegrass @ Pier 62
-
 August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
 
 September 3rd, 2025 - Calva Louise & Sick Sense @ ?? in San Francisco, CA
