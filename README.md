@@ -10,8 +10,6 @@ August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
 
 September 3rd, 2025 - Calva Louise & Sick Sense @ ?? in San Francisco, CA
 
-## Determine Which One Cuz Logistics r' Awesome
-
 November 10th, 2025 - Avatar @ Moore Theater in Seattle.
 
 ## Seen Em'
