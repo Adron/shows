@@ -12,7 +12,7 @@ September 3rd, 2025 - Calva Louise & Sick Sense @ ?? in San Francisco, CA
 
 ## Determine Which One Cuz Logistics r' Awesome
 
-October ??, 2025 - Avatar @ Moore Theater in Seattle.
+November 10th, 2025 - Avatar @ Moore Theater in Seattle.
 
 ## Seen Em'
 
