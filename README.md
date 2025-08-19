@@ -30,8 +30,6 @@ April 19th, 2025 - Arch Enemy, Fit For An Autopsy, Baest, Thrown into Exile - AX
 
 May 10th, 2025 - Nekrogoblikon, Revocation, Ov Sulfur, Brat -  - El Corazon
 
-May 22nd, 2025 - Rolling Quartz - ticketweb - El Corazon
-
 July 15th, 2025 - Babymetal, Jinjer, Bloodywood - ticketmaster - Showare
 
 July 12th, 2025 - Skating Polly, Illuminati Hotties @ Ballard Seafood Festival
