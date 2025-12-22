@@ -4,13 +4,13 @@ This is just my ongoing list of shows I've seen and shows I'm going to see.
 
 ## Upcoming
 
-August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
-
-September 3rd, 2025 - Calva Louise & Sick Sense @ ?? in San Francisco, CA
-
-November 10th, 2025 - Avatar @ Moore Theater in Seattle.
+February 20th, 2026 - Orbit Culture, Atlas, ?? @ El Corazon
 
 ## Seen Em'
+
+August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
+
+November 10th, 2025 - Avatar @ Moore Theater in Seattle.
 
 March 11th, 2025 - Edge of Paradise, Xandria, Delain - (tix on seetickets) - El Corazon
 
