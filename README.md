@@ -4,6 +4,18 @@ This is just my ongoing list of shows I've seen and shows I'm going to see.
 
 ## Upcoming
 
+June 4th, 2026 - Archspire, Undeath, Crown Magnetar, Mutilation Barbecue - https://www.elcorazonseattle.com/shows/archspire-long-roads-big-loads-tour-04-jun
+
+May 29th, 2026 - Infected Rain - https://www.elcorazonseattle.com/shows/infected-rain-mutation-phase-in-the-us-tour-29-may
+
+May 12th, 2026 - Master Boot Record - 
+
+April 22nd, 2026 -  - Unprocessed, Allt, Midwinter - https://www.elcorazonseattle.com/shows/unprocessed-22-apr
+
+April 2nd, 2026 - Eyehategod, Crowbar, BL'AST! - https://www.elcorazonseattle.com/shows/eyehategod-crowbar-02-apr
+
+March 29th, 2026 - Metalachi @ El Corazon - https://www.elcorazonseattle.com/shows/metalachi-the-world-s-first-and-only-heavy-metal-mariachi-band-29-mar
+
 February 20th, 2026 - Orbit Culture, Atlas, ?? @ El Corazon
 
 ## Seen Em'
