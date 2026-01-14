@@ -8,7 +8,7 @@ June 4th, 2026 - Archspire, Undeath, Crown Magnetar, Mutilation Barbecue - https
 
 May 29th, 2026 - Infected Rain - https://www.elcorazonseattle.com/shows/infected-rain-mutation-phase-in-the-us-tour-29-may
 
-May 12th, 2026 - Master Boot Record - 
+May 12th, 2026 - Master Boot Record - https://www.elcorazonseattle.com/shows/master-boot-record-13-may
 
 April 22nd, 2026 -  - Unprocessed, Allt, Midwinter - https://www.elcorazonseattle.com/shows/unprocessed-22-apr
 
@@ -20,24 +20,23 @@ February 20th, 2026 - Orbit Culture, Atlas, ?? @ El Corazon
 
 ## Seen Em'
 
-August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
-
 November 10th, 2025 - Avatar @ Moore Theater in Seattle.
 
-March 11th, 2025 - Edge of Paradise, Xandria, Delain - (tix on seetickets) - El Corazon
-
-March 27th, 2025 - Make Them Suffer, Like Moths to a Flames, Windwaker, Aviana - (tix on seetickets) - El Corazon
-
-April 2nd, 2025 - In Flames, Unearth - (Ticket Master) - Neptune Theatre
-
-April 8th, 2025 - Warbringer, Allegaeon, Skeletal Remains, Summoning the Lich - (tix on seetickets) - El Corazon
-
-April 9th, 2025 - Whitechapel, Brand of Sacrifice, 200 Stab Wounds, Alluvial - AXS - The Showbox
-
-April 19th, 2025 - Arch Enemy, Fit For An Autopsy, Baest, Thrown into Exile - AXS - The Showbox
-
-May 10th, 2025 - Nekrogoblikon, Revocation, Ov Sulfur, Brat -  - El Corazon
+August 4th, 2025 - Architects, HolyWatr, Erra @ Showbox SODO
 
 July 15th, 2025 - Babymetal, Jinjer, Bloodywood - ticketmaster - Showare
 
 July 12th, 2025 - Skating Polly, Illuminati Hotties @ Ballard Seafood Festival
+
+May 10th, 2025 - Nekrogoblikon, Revocation, Ov Sulfur, Brat -  - El Corazon
+
+April 19th, 2025 - Arch Enemy, Fit For An Autopsy, Baest, Thrown into Exile - AXS - The Showbox
+
+April 9th, 2025 - Whitechapel, Brand of Sacrifice, 200 Stab Wounds, Alluvial - AXS - The Showbox
+
+April 2nd, 2025 - In Flames, Unearth - (Ticket Master) - Neptune Theatre
+
+March 27th, 2025 - Make Them Suffer, Like Moths to a Flames, Windwaker, Aviana - (tix on seetickets) - El Corazon
+
+March 11th, 2025 - Edge of Paradise, Xandria, Delain - (tix on seetickets) - El Corazon
+
