@@ -16,7 +16,7 @@ April 2nd, 2026 - Eyehategod, Crowbar, BL'AST! - https://www.elcorazonseattle.co
 
 March 29th, 2026 - Metalachi @ El Corazon - https://www.elcorazonseattle.com/shows/metalachi-the-world-s-first-and-only-heavy-metal-mariachi-band-29-mar
 
-March 13th, 2026 - Overkill @ El Corazon - 
+March 13th, 2026 - Overkill, Destruction @ El Corazon - https://www.elcorazonseattle.com/shows/overkill-destruction-13-mar
 
 February 20th, 2026 - Orbit Culture, Atlas, ?? @ El Corazon
 
