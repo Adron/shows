@@ -18,9 +18,9 @@ March 29th, 2026 - Metalachi @ El Corazon - https://www.elcorazonseattle.com/sho
 
 March 13th, 2026 - Overkill, Destruction @ El Corazon - https://www.elcorazonseattle.com/shows/overkill-destruction-13-mar
 
-February 20th, 2026 - Orbit Culture, Atlas, ?? @ El Corazon
-
 ## Seen Em'
+
+February 20th, 2026 - Orbit Culture, Atlas, Uv Sulfur @ El Corazon
 
 November 10th, 2025 - Avatar @ Moore Theater in Seattle.
 
