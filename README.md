@@ -4,9 +4,13 @@ This is just my ongoing list of shows I've seen and shows I'm going to see.
 
 ## Upcoming
 
+June 12th, 2026 - The Dead South - https://www.marymoorlive.com/tm-event/the-dead-south/
+
 June 4th, 2026 - Archspire, Undeath, Crown Magnetar, Mutilation Barbecue - https://www.elcorazonseattle.com/shows/archspire-long-roads-big-loads-tour-04-jun
 
 May 29th, 2026 - Infected Rain - https://www.elcorazonseattle.com/shows/infected-rain-mutation-phase-in-the-us-tour-29-may
+
+May 23rd, 2026 - Les Claypool https://www.marymoorlive.com/tm-event/claypool-gold/
 
 May 12th, 2026 - Master Boot Record - https://www.elcorazonseattle.com/shows/master-boot-record-13-may
 
