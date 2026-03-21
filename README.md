@@ -16,7 +16,7 @@ May 23rd, 2026 - Les Claypool https://www.marymoorlive.com/tm-event/claypool-gol
 
 May 12th, 2026 - Master Boot Record - https://www.elcorazonseattle.com/shows/master-boot-record-13-may
 
-April 22nd, 2026 -  - Unprocessed, Allt, Midwinter - https://www.elcorazonseattle.com/shows/unprocessed-22-apr
+April 22nd, 2026 - Unprocessed, Allt, Midwinter - https://www.elcorazonseattle.com/shows/unprocessed-22-apr
 
 ## Seen Em'
 
