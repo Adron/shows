@@ -4,6 +4,8 @@ This is just my ongoing list of shows I've seen and shows I'm going to see.
 
 ## Upcoming
 
+July 23rd, 2026 - Evenescence, Spiritbox, The Novo Twins
+
 June 12th, 2026 - The Dead South - https://www.marymoorlive.com/tm-event/the-dead-south/
 
 June 4th, 2026 - Archspire, Undeath, Crown Magnetar, Mutilation Barbecue - https://www.elcorazonseattle.com/shows/archspire-long-roads-big-loads-tour-04-jun
@@ -19,8 +21,6 @@ April 22nd, 2026 -  - Unprocessed, Allt, Midwinter - https://www.elcorazonseattl
 April 2nd, 2026 - Eyehategod, Crowbar, BL'AST! - https://www.elcorazonseattle.com/shows/eyehategod-crowbar-02-apr
 
 March 29th, 2026 - Metalachi @ El Corazon - https://www.elcorazonseattle.com/shows/metalachi-the-world-s-first-and-only-heavy-metal-mariachi-band-29-mar
-
-March 13th, 2026 - Overkill, Destruction @ El Corazon - https://www.elcorazonseattle.com/shows/overkill-destruction-13-mar
 
 ## Seen Em'
 
