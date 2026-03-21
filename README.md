@@ -18,10 +18,6 @@ May 12th, 2026 - Master Boot Record - https://www.elcorazonseattle.com/shows/mas
 
 April 22nd, 2026 -  - Unprocessed, Allt, Midwinter - https://www.elcorazonseattle.com/shows/unprocessed-22-apr
 
-April 2nd, 2026 - Eyehategod, Crowbar, BL'AST! - https://www.elcorazonseattle.com/shows/eyehategod-crowbar-02-apr
-
-March 29th, 2026 - Metalachi @ El Corazon - https://www.elcorazonseattle.com/shows/metalachi-the-world-s-first-and-only-heavy-metal-mariachi-band-29-mar
-
 ## Seen Em'
 
 February 20th, 2026 - Orbit Culture, Atlas, Uv Sulfur @ El Corazon
